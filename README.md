@@ -1,0 +1,2 @@
+# premium-silversmithing-001-silversmithing-precious-meta
+Stop losing your silversmithing notes in a pile of metal shavings. This Notion template turns workshop chaos into a structured system for tracking every precious metal project from sketch to finish.  No more scattered sticky notes or forgotten techniques. This template centralizes your entire silversmithing workflow — project timelines, material co
